@@ -1,1 +1,1 @@
-# Python_sample
+tHIS IS SAMPLES OF MY ABILITY TO CODE
